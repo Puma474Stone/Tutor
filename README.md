@@ -2,3 +2,4 @@
 не женат 
 пол: муж
 дата рождения : 08.02.2003
+![1675080941_3-5](https://github.com/Puma474Stone/Tutor/assets/169571057/5444aec4-c22e-44d8-9f6a-b9a846efffae)
